@@ -1,1 +1,1 @@
-hi this is my 1st project fun zone is a themepark
+thi this is my 1st project fun zone is a themepark
